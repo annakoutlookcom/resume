@@ -20,7 +20,7 @@
   2009 - 2014
 
 * ##Associate Degree in Teaching, Faculty of Piano
-  #####Yerevan State Musical-Padagogical College Named After Arno Babajanyan
+  #####Yerevan State Musical-Pedagogical College Named After Arno Babajanyan
   Yerevan, Armenia  
   2001 - 2005
 
